@@ -2,7 +2,9 @@
 
 你好呀 👋，这里是幻影中麋了鹿~
 
-૮₍ ˃ ⤙ ˂ ₎ა&nbsp;&nbsp;&nbsp;૮(˶ᵔ ᵕ ᵔ˶)ა&nbsp;&nbsp;&nbsp;٩(๑•̀ω•́๑)۶
+. ⋆ ☆ ⋆ ★ ⋆ . · . ☆. ⋆ ☆ ⋆ ★ ⋆ . · . ☆
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;(っ´ω`c)♡&nbsp;&nbsp;&nbsp;✧*｡ (ˊᗜˋ*) ✧*｡
 
 <!--
 **HYZMLLCN/HYZMLLCN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
