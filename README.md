@@ -1,6 +1,8 @@
 ## Hi there 👋, I'm HYZMLLCN~
+
 你好呀 👋，这里是幻影中麋了鹿~
-T^T
+
+૮₍ ˃ ⤙ ˂ ₎ა&nbsp;&nbsp;&nbsp;૮(˶ᵔ ᵕ ᵔ˶)ა&nbsp;&nbsp;&nbsp;٩(๑•̀ω•́๑)۶
 
 <!--
 **HYZMLLCN/HYZMLLCN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
