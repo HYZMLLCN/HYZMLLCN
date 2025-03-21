@@ -1,5 +1,5 @@
-## Hi there 👋, I'm HYZMLLCN~
-## 你好呀👋，这里是幻影中麋了鹿~
+## 你好呀👋，这里是幻影中麋了鹿~<br>Hi there 👋, I'm HYZMLLCN~
+T^T
 
 <!--
 **HYZMLLCN/HYZMLLCN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
